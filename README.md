@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning as Data Analyst : R, Tableau 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me > juereez828@gamil.com
-- 😄 Pronouns: jue
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
 <!---
